@@ -18,7 +18,7 @@ Modified Tools by TYSON – No Limits, No Boundaries
 ---
 
 ### 📲 Connect with Me:  
-🔗 **Instagram:** [@t4y_s](https://www.instagram.com/z.cs.z)  
+🔗 **Instagram:** [@z.cs.z](https://instagram.com/z.cs.z)
 🔗 **GitHub:** [Tysonhacking](https://github.com/Tysonhacking)  
 
 > _"No Limits, No Boundaries."_  
